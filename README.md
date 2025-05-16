@@ -3,7 +3,7 @@
 
 
 # 💫 About Me:
-**3rd year Computer Engineering student at Birzeit University**  📖🔭<br><br>**Always building, always learning**  🚀⚡️
+**3rd year Computer Engineering student at Birzeit University**  📖🔭
 
 
 
