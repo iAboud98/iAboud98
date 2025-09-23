@@ -1,5 +1,5 @@
 # 💫 About Me:
-**3rd year Computer Engineering student at Birzeit University**  📖🔭
+**4th year Computer Engineering student at Birzeit University**  📖🔭
 
 
 
